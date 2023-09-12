@@ -1,7 +1,9 @@
 ### 23:99
 
-Me chamo Maria Julia
+Maju na area, A MAE Né
+beijo no ombro pras recalcadas
+😘
+😘
+😘
+😘
 
-Gosto de artes e estudo no ensino médio.
-
-Tenho projetos de 
